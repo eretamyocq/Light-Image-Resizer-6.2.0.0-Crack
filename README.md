@@ -1,0 +1,1 @@
+# Light-Image-Resizer-6.2.0.0-Crack
